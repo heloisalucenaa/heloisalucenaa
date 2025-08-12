@@ -10,5 +10,10 @@ Here are some ideas to get you started:
 - 👯 eu moro com a minha mãe e meu padrasto
 - 🤔 eu gosto muito de pintar a unha e jogar volei
 - 💬 minhas matérias favoritas são história e química
-- ⚡ Fun fact: eu tento ser ao maxímo 
-  
+- ⚡ Fun fact: eu tento ser ao maxímo
+
+![](
+
+
+
+ 
